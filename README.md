@@ -2,7 +2,7 @@
 
 ## Xin chào, mình là Nguyễn Hoàn 👋
 
-**AI Builder ở Hà Nội, founder Moz Intelligence.**
+**AI Builder ở Hà Nội, founder Hoanng Labs.**
 
 Mình chia sẻ AI thực sự hoạt động thế nào, cách đưa AI vào công việc hằng ngày, và những cách kiếm tiền online minh bạch. Chỉ những gì mình đã tự làm và kiểm chứng.
 
